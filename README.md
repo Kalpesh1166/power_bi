@@ -14,6 +14,12 @@ This project has been an incredible learning experience, allowing me to apply my
 Case study📊, Conclusion📑, Recommendation 📈
 ![Screenshot 2024-04-30 085655](https://github.com/user-attachments/assets/d9285d02-edeb-428d-804a-897f4643aa9b)
 
+![Screenshot 2024-05-12 170823](https://github.com/user-attachments/assets/eb38fa54-813f-4587-b0f6-49aebfbf782f)
+
+![Screenshot 2024-04-30 085914](https://github.com/user-attachments/assets/39edb81b-553a-4bd3-b7dd-c7c884180d82)
+
+
+
 
 
 
